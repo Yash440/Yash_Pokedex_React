@@ -6,7 +6,6 @@
 
 ![Screenshot (603)](https://user-images.githubusercontent.com/75801689/127884211-efc07dc4-6c9d-46af-8011-4bf453b5fb2c.png)
 
-![Screenshot (605)](https://user-images.githubusercontent.com/75801689/127889820-0d220979-2d53-4aa7-8b05-1669c1863351.png)
 
 
 
